@@ -26,5 +26,5 @@ https://user-images.githubusercontent.com/60463845/187019338-10db3112-f4be-45a6-
 
 - Gibi sorularınızı sormak için 
 
-- https://harmonydc.xyz/discord.html
+- https://harmonydc.xyz/discord
 
